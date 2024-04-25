@@ -1,2 +1,2 @@
-# fairosim2info.github.io
-i eat lil bros that r noob
+# omagad el prima
+releesesese in mej tlef  kus jez
